@@ -1,6 +1,5 @@
 # 💫 About Me:
 Visca Barça ❤️💙
-Abajo los barbones
 
 
 ## 🌐 Socials:
